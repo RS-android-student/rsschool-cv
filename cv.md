@@ -28,3 +28,6 @@ Online course "English for Career Development" — free course from Coursera.
 
 Law faculty of Belarusian State University (2013-2017)
 
+8. **Languages**
+
+Russian is my native language. I have been studying English for 6 years: 4 years at university and 2 years at our local English Speaking Club. I also practice German with a tutor for six months.
