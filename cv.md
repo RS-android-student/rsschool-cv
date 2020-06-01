@@ -1,8 +1,6 @@
 1. **Anton Petrov**
 2. **Contact Info**
 
-Phone: *+375 29 275-06-56*
-
 E-mail: *rs.andr0id.student@gmail.com*
 
 Website: *https://github.com/RS-android-student*
